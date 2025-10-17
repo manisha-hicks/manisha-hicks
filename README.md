@@ -36,6 +36,6 @@ My goal is to ensure every release meets the highest standards of functionality,
 ### 💬 Let’s Connect
 📧 **Email:** manisha.hicks47@gmail.com  
 🌍 **Location:** Lenexa, KS  
-💼 **LinkedIn:** *(add your LinkedIn profile link once ready)*  
+💼 **LinkedIn:** **  
 
 > _“Quality is never an accident; it is always the result of intelligent effort.” – John Ruskin_  
